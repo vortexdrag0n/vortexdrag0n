@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @vortexdrag0n
 - 👀 I’m interested in coding and gaming
 - 🌱 I’m currently learning the basics of coading
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by email or discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: am giraffe
